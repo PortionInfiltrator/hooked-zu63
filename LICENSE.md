@@ -1,4 +1,4 @@
-
+stealth hooked Script offers the most advanced hooked Script, with auto-sell and instant win. Perfect for dominating any match.
 
 
 
